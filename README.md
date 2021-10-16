@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @BlackCrowLT
+- 👀 Interested in programming and games
+- 🌱 I am now studying to be a programmer in my second year
+- 💞️ I want to collaborate on ---
+- 📫 How to contact me @blackcrowlt - telegram
